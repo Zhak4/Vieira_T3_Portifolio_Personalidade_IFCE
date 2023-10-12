@@ -1,2 +1,2 @@
 # Vieira_T3_Portifolio_Personalidade_IFCE
-Um portigolio professional sobre uma personalidade do ifce campus maranguape
+Um portifolio professional sobre uma personalidade do ifce campus maranguape
